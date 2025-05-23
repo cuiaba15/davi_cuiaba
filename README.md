@@ -1,1 +1,2 @@
-https://drive.google.com/file/d/166QTitj5wpdQ5gfLZ_R5D7Wy3wwAgN1Z/view?usp=sharing
+
+![Cópia de avatar-perfil (1)](https://github.com/user-attachments/assets/4d08e160-ef9f-4524-89b7-17a6af236d18)
